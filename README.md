@@ -1,6 +1,6 @@
 <div align="center">
 
-# 𝓠𝓾𝓮𝓮𝓻
+
 ![200w](https://github.com/user-attachments/assets/fa80b89e-d93d-4958-a2f2-9c65af166e11)
 
 
