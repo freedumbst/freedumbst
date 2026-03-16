@@ -4,7 +4,8 @@
 
 ![pride-art](https://github.com/user-attachments/assets/f57bcfbd-5f6c-4687-a5af-0282fa790a8d)
 
-<img width="256" height="256" alt="31532-whiteheart" src="https://github.com/user-attachments/assets/a7e526ed-c714-48d5-9443-ac7c86c91029" />
+<img width="200" height="93" alt="593435-grayangelheartsymbol" src="https://github.com/user-attachments/assets/67dfdef9-a2f1-4f02-bdb5-470f8c6ccf3a" />
+
 
 
 
