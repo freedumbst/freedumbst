@@ -4,6 +4,7 @@
 ![pride-art](https://github.com/user-attachments/assets/f57bcfbd-5f6c-4687-a5af-0282fa790a8d)
 
 
+![image](https://github.com/user-attachments/assets/41eeb7c8-74fe-4287-a51e-f84a296e38a8)
 
-<img width="2048" height="366" alt="tumblr_1ecd721a3f18ed4365c51a26b3575132_5cbb06c4_2048" src="https://github.com/user-attachments/assets/cb253ae9-f501-47b3-9486-9eca86bb5e64" />
+
 
